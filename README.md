@@ -32,7 +32,7 @@ Os problemas também são classificados por nível de dificuldade — Fácil, M�
 
 ## Gravação
 
-[clique aqui](https://www.youtube.com/embed/9COSYfzQ-Dc?si=ZrtDsbuXE9tO-GbD" title="YouTube video player) 
+[clique aqui](https://www.youtube.com/embed/9COSYfzQ-Dc?si=ZrtDsbuXE9tO-GbD" 
 
 ## Disciplina
 
